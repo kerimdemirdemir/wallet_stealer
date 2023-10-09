@@ -1,4 +1,6 @@
-# !! WALLET STEALER SOFTWARE ( TRUST WALLET, METAMASK AND MORE...)
+# !! TRUST WALLET HACK BOT (GENERATES PHRASES, LOGS IN TO WALLETS, CHECKS HOW MUCH MONEY IS THERE) !!
+・This bot first generates random phrase combinations, checks if they are valid, saves valid phrases to a csv file, then checks how much money are there on these phrases, and saves how much is there.👌
+
 ・You cannot run this bot by downloading it from Github. The full state of the bot is required!‼️
 
 ・If you want to buy the bot, contact me on Telegram: https://t.me/arturservicess👍
@@ -6,15 +8,17 @@
 ・ Prices are negotiable. 👍
 
 # !! FEATURES !!
-✅Constantly tries 12 words automatically!🔥
+✅Has 2048 WORDS that Trust Wallet uses!
 
-✅No wait error and flood!👍
+✅Works with the speed of light!
 
-✅Very quickly, fast bot!💪
+✅Collects dozens of dollars in a day MINIMUM!
 
-✅When you steal a wallet, you can see what's inside without opening the wallet.
+✅Easy to run!
 
-✅%100 Automatically!😎
+✅%100 Automatic!
+
+✅DM me for more info.
 
 DM me from Telegram: https://t.me/arturservicess if you are interested.🤝
 
