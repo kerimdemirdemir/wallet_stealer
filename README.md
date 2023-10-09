@@ -1,7 +1,7 @@
 # !! WALLET STEALER SOFTWARE ( TRUST WALLET, METAMASK AND MORE...)
 ・You cannot run this bot by downloading it from Github. The full state of the bot is required!‼️
 
-・If you want to buy the bot, contact me on Telegram: https://t.me/adrianservices👍
+・If you want to buy the bot, contact me on Telegram: https://t.me/arturservicess👍
 
 ・ Prices are negotiable. 👍
 
@@ -16,4 +16,4 @@
 
 ✅%100 Automatically!😎
 
-DM me from Telegram: https://t.me/adrianservices if you are interested.🤝
+DM me from Telegram: https://t.me/arturservicess if you are interested.🤝
