@@ -3,7 +3,7 @@
 
 ・You cannot run this bot by downloading it from Github. The full state of the bot is required!‼️
 
-・DM me from Telegram (https://t.me/eeros0) if you want to buy full version of the bot. 📭
+・DM me from Telegram (https://t.me/arturservices1) if you want to buy full version of the bot. 📭
 
 ・ Prices are negotiable. 👍
 
@@ -20,4 +20,4 @@
 
 ✅DM me for more info.
 
-DM me from Telegram (https://t.me/eeros0) if you are interested.👍
+DM me from Telegram (https://t.me/arturservices1) if you are interested.👍
