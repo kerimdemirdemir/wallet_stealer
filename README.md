@@ -3,7 +3,7 @@
 
 ・You cannot run this bot by downloading it from Github. The full state of the bot is required!‼️
 
-・If you want to buy the bot, contact me on Telegram: https://t.me/arturservicess👍
+・If you want to buy the bot, contact me on Telegram: https://t.me/eeros0👍
 
 ・ Prices are negotiable. 👍
 
@@ -20,6 +20,4 @@
 
 ✅DM me for more info.
 
-DM me from Telegram: https://t.me/arturservicess if you are interested.🤝
-
-and my telegram channel where i have such services: https://t.me/arturserviceschannel✅
+DM me from Telegram: https://t.me/eeros0 if you are interested.👍
